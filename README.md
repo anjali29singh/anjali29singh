@@ -1,1 +1,1 @@
-### Hi there 👋 i am, Anjali Singh
+### Hi there 👋 i am, Anjali Kumari Singh
